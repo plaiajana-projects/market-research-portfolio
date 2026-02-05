@@ -18,7 +18,7 @@ Experienced market research and analytics professional with a focus on translati
 * Vendor & Project Management
 * Strategic Advisory & Business Alignment
 
-## Sample Projects 👉 [View Website Portfolio](./websites-portfolio.md)
+Sample Projects 👉 View Website Portfolio
 
 ### Market Opportunity Analysis Framework
 
